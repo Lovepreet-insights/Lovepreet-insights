@@ -12,7 +12,7 @@
 
 📫 Contact
 - Email: lovepreet.insights@gmail.com
-- LinkedIn: https://linkedin.com/in/lovepreet-kaur
+- LinkedIn: - LinkedIn: https://www.linkedin.com/in/lovepreet-kaur-b9790a387
 
  🎯 Currently
 - Open to entry-level Data Analyst roles
